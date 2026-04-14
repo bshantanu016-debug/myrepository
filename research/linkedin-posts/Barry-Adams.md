@@ -18,7 +18,7 @@ So, we can breathe easy again. For a while, at least. Until the next one hits.
 
 ## Post 2
 
-**10 april ago**
+**10 April 2026**
 
 **Content**:When a publisher elevates traffic to its primary KPI, it changes how the newsroom thinks about its output. This can lead down a very dangerous path.
 
