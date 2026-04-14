@@ -12,7 +12,7 @@ No vector embeddings required.
 
 ## Post 2
 
-**7 April 2026**
+**13 April 2026**
 
 **Content**:SEO updates you ✨NEED✨ to know [13 April]:
 
