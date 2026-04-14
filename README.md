@@ -1,4 +1,4 @@
-# SEO Expert Research
+# AI-powered SEO content production
 
 ## Topic
 AI-Powered SEO Content Production
